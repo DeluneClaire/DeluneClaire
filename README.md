@@ -1,6 +1,6 @@
 🫂 Communication and social ties are what I enjoy.
 
-🐲 Managing KodaDot [instagram](https://www.instagram.com/kodadot.xyz/) 
+🐲 UI/UX designer, marketing and social media 
 
 🐇 I'm all in for cruelty free.
 
